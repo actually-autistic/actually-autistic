@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @grandaspy, and I am autistic.
+- 👋 Hi, I’m @actually-autistic, and I am autistic.
 
 This manual is designed for people I work with to understand how to support myself and their own ideal conditions for getting our best work done as a team.
 
