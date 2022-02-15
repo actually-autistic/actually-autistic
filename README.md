@@ -1,5 +1,7 @@
 - 👋 Hi, I’m @grandaspy, and I am autistic.
 
+This manual is designed for people I work with to understand how to support myself and their own ideal conditions for getting our best work done as a team.
+
 My style
 - I’ve been hard-wired to follow the rules since I was a kid, but I am open to challenging the status quo. If something needs to change, I’m happy to discuss it.
 - I am most energised when I’m connecting dots/people/resources that translate challenges into opportunities. I’m a very direct person that prefers to enable people to solve their own problems, rather than solving them directly.
