@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @actually-autistic, and I am...you guessed it...autistic.
 
-This manual is designed for people I work with to understand how to support myself and their own ideal conditions for getting our best work done as a team.
+This manual is designed for people I work with to understand how to help create the ideal conditions for getting our best work done as a team.
 
 My style
 - I’ve been hard-wired to follow the rules since I was a kid, but I am open to challenging the status quo. If something needs to change, I’m happy to discuss it.
