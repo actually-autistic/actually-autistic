@@ -3,7 +3,7 @@
 This manual is designed for people I work with to understand how to help create the ideal conditions for getting our best work done as a team.
 
 My style
-- I’ve been hard-wired to follow the rules since I was a kid, but I am open to challenging the status quo. If something needs to change, I’m happy to discuss it.
+- I am hard-wired to follow the established rules and structures, but I am open to challenging the status quo. If something needs to change, I’m happy to discuss it.
 - I am most energised when I’m connecting dots/people/resources that translate challenges into opportunities. I’m a very direct person that prefers to enable people to solve their own problems, rather than solving them directly.
 - I am always scanning for information to feed ideas in my mind, and typically do my best thinking out loud, with someone to bounce ideas off.
 - My high expectations are matched by my commitment to support people in meeting those expectations. I believe in giving people freedom, flexibility and “stretch” assignments (tasks that will challenge your abilities), and equipping them with the tools they need to uncover and develop their potential.
