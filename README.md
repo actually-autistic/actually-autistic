@@ -59,7 +59,7 @@ Some idiosyncrasies you need to know about me
 - I have sensory issues. Too much noise, too loud, for too long, and I start to shut down. The same goes for bright lights, and warm temperatures.
 - I don't like being touched, especially when I'm not expecting it, and especially not on my face.
 - You will frequently find me wearing hat and a backpack. Both of these items are a source of comfort, and I get anxious if I don't have one or the other.
-- I don't like eye contact, ever, but I will make a conscious effort to mak eye contact with you anyway.
+- I don't like eye contact, ever, but I will make a conscious effort to make eye contact with you anyway.
 - I will frequently cover my mouth with my hands, jiggle my leg, or twiddle my fingers. These are known as 'stims' or 'stimming'. It helps me cope with stress.
 
 Main points to remember
