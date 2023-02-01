@@ -54,6 +54,14 @@ What to do when I’m angry
 - Give me the hard truths. Though I can be very reactive, it’s important for me to understand that my actions have real consequences and could take me to places I don’t want to see. The truth of my behaviour can help me socially as well. It might show me how I look to my peers, or how I might hurt others’ feelings by my negative actions.
 - While no one likes negativity or anger, I invite you to take ownership of, and solve the root cause of the problem if it’s within your ability/responsibility.
 
+Some idiosyncrasies you need to know about me
+- I wear the same outfit day in and day out. I have 15 pairs of exactly the same shirt, shorts, pants etc. etc. etc. Part of it is minimilaism, but part of it is removing the mental load from my brain. It's one less decision to make.
+- I have sensory issues. Too much noise, too loud, for too long, and I start to shut down. The same goes for bright lights, and warm temperatures.
+- I don't like being touched, especially when I'm not expecting it, and especially not on my face.
+- You will frequently find me wearing hat and a backpack. Both of these items are a source of comfort, and I get anxious if I don't have one or the other.
+- I don't like eye contact, ever, but I will make a conscious effort to mak eye contact with you anyway.
+- I will frequently cover my mouth with my hands, jiggle my leg, or twiddle my fingers. These are known as 'stims' or 'stimming'. It helps me cope with stress.
+
 Main points to remember
 - I try to do the best, and be the best at everything I attempt. This means that if you’ve had a less than positive experience with me, it was most certainly unintentional, and something I want to improve upon. You just need to let me know.
 - I’m a person, a direct report, a teammate, a boss, and a messy work-in-progress. I’m committed to always getting better at my job, and to become a wiser, kinder and more impactful person.
