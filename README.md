@@ -55,7 +55,7 @@ What to do when I’m angry
 - While no one likes negativity or anger, I invite you to take ownership of, and solve the root cause of the problem if it’s within your ability/responsibility.
 
 Some idiosyncrasies you need to know about me
-- I wear the same outfit day in and day out. I have 15 pairs of exactly the same shirt, shorts, pants etc. etc. etc. Part of it is minimilaism, but part of it is removing the mental load from my brain. It's one less decision to make.
+- I wear the same outfit day in and day out. I have 15 pairs of exactly the same shirt, shorts, pants etc. etc. etc. Part of it is minimalism, but part of it is removing the mental load from my brain. It's one less decision to make.
 - I have sensory issues. Too much noise, too loud, for too long, and I start to shut down. The same goes for bright lights, and warm temperatures.
 - I don't like being touched, especially when I'm not expecting it, and especially not on my face.
 - You will frequently find me wearing hat and a backpack. Both of these items are a source of comfort, and I get anxious if I don't have one or the other.
