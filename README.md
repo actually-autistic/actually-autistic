@@ -1,4 +1,4 @@
-👋 Hello, everyone! I'm @actually-autistic, and I am an autistic individual with a co-occurrence of ADHD-C, otheriwse known in the neurodvirgent community as an AuDHD. I'd like to share some insights about how we can work together effectively and create an environment where we can all thrive.
+👋 Hello, everyone! I'm @actually-autistic, and I am an autistic individual with a co-occurrence of ADHD-C, otherwise known in the neurodvirgent community as an AuDHD. I'd like to share some insights about how we can work together effectively and create an environment where we can all thrive.
 
 My Idiosyncrasies:
 
