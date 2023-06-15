@@ -1,67 +1,54 @@
-- 👋 Hi, I’m @actually-autistic, and I am, you guessed it, autistic.
+👋 Hello, everyone! I'm @actually-autistic, and I am an autistic individual with a co-occurrence of ADHD-C, otheriwse known in the neurodvirgent community as an AuDHD. I'd like to share some insights about how we can work together effectively and create an environment where we can all thrive.
 
-This manual is designed for people I work with to understand how to help create the ideal conditions for getting our best work done as a team.
+My Idiosyncrasies:
 
-My style
-- I am hard-wired to follow the established rules and structures, but I am open to challenging the status quo. If something needs to change, I’m happy to discuss it.
-- I am most energised when I’m connecting dots/people/resources that translate challenges into opportunities. I’m a very direct person that prefers to enable people to solve their own problems, rather than solving them directly.
-- I am always scanning for information to feed ideas in my mind, and typically do my best thinking out loud, with someone to bounce ideas off.
-- My high expectations are matched by my commitment to support people in meeting those expectations. I believe in giving people freedom, flexibility and “stretch” assignments (tasks that will challenge your abilities), and equipping them with the tools they need to uncover and develop their potential.
-- I'm very hands-off and expect you to do your job and act independently. However, if over time it's clear that you need more direction and oversight, then you can expect me to be there.
-- If you need support emotionally, I am happy to listen, but I struggle to empathise. I am very solution-driven, so I can help you solve your problem, but it’s unlikely that I’ll be able to make you feel better about it.
-- I love to solve problems, remove barriers, and help others move the ball forward.  Don’t come to me with just a problem; you also need to bring plausible solutions and your recommended course of action. It’s not my job to solve your problems, it’s my job to help you solve your problems.
-- I believe in tactical and strategic self-care—whether sleeping enough, leaving work early to exercise, meditating, or spending time in nature. It is the key ingredient to becoming our best, most productive, and happy selves. If you’re not happy at work, or even at home, I want to know what we can do to solve that.
+- Executive dysfunction is a behavioral symptom that disrupts a person's ability to manage their own thoughts, emotions and actions. Emotional regulation is extremely difficult for me. If am being too loud, or too 'extra', please ask me to tone it down, because I may not be aware of my impact.
+- I have a preference for wearing the same outfit every day. It's a deliberate choice to reduce decision fatigue and save mental energy for more important matters.
+- I have sensory issues, such as sensitivity to noise, bright lights, restrictive clothing, or warm temperatures. Understanding and accommodating these sensory issues is appreciated.
+- Unexpected touch, especially on my face, can be uncomfortable for me. I am also adverse to hugging, as physical restriction makes me uncomfortable. Please respect my personal boundaries.
+- Wearing a hat and backpack provides comfort and reduces anxiety for me. It's a coping mechanism that helps me feel secure and grounded.
+- While eye contact can be challenging, I'll make an effort to establish it during conversations. Please be patient with me.
+- Engaging in repetitive behaviors, known as stimming, helps me cope with stress and maintain focus. It's a natural part of who I am.
 
-What I value
-- I value honesty, initiative, integrity, and forthrightness. Be smart, trustworthy, think of creative solutions, and don’t be afraid to speak up, especially if it’s to admit a mistake, or admit failure. 
-- I’m obsessed with managing my work and time, and I aim to eliminate any possibility of error when it comes to projects or initiatives.
-- I also expect my teammates to value efficiency, and efficient communication. Before doing something, look for an easier, cheaper, simpler way to maximize your “return on effort”. Before starting something from scratch, ask if it’s already been tried. Work smarter, not harder.
-- I value results. If you’ve made a commitment, then get it done. If you are having problems or doubts with this mid-project, it's better to let me know beforehand so we can adapt.
+My Style:
 
-What I don’t have patience for
-- If you make a mistake or something is heading off the rails, tell me before the crash. Failure is acceptable; surprises are not. If there is a problem, I want a chance to solve it, before it impacts others.
-- Don’t use ‘business speak’ when we’re having a private discussion. Trying to read between the lines is a frustrating exercise for me, and draws out the conversation unnecessarily.
-- I default to trust, but if my confidence is shaken, it’s hard to rebuild. Meet your commitments, push important information to me, don’t avoid hard conversations, and treat others with respect. If you stick to that, we’ll get along fine.
-- Excuses, and preventable failure. An excuse is an unfounded reason for why something was not accomplished, and explanation is telling the honest story of why something was not achieved. If you haven’t tried everything to achieve your goal, including speaking to me, then you don’t have an explanation for failure; you have an excuse.
-- I don’t like to use my time poorly. I’d prefer to work on initiatives that provide the most value. I adhere to the Pareto Principle; 80% of consequences come from 20% of the causes.
-- I don’t like being drip-fed information, or guided to an answer. Be direct in our communication. Just tell me what your goal is, so we can address it.
-- Challenging thoughts, opinions, plans or ideas is encouraged, as long as you can give me a good reason or evidence as to why you’re challenging them. Challenging something without an alternative solution makes you part of the problem. Your thoughts and ideas should come with conviction and intent, not just to be contrary.
+- I appreciate established rules and structures but am also open to challenging the status quo. If something needs to change, I'm always up for discussing it.
+- I'm energised when I connect dots, people, and resources to turn challenges into opportunities. I prefer enabling others to solve their own problems rather than solving them directly.
+- I enjoy bouncing ideas off others and doing my best thinking out loud. So, feel free to engage in brainstorming sessions or provide feedback.
+- I have high expectations, but I'm equally committed to supporting everyone in meeting those expectations. I believe in giving people freedom, flexibility, and "stretch" assignments that challenge their abilities while equipping them with the necessary tools for personal growth.
+- I value autonomy and expect my team members to excel in their roles, and act independently. However, if they need more guidance or oversight, I encourage them to reach out to me.
 
-How best to communicate with me
-- Be succinct. I need to know your main point from the get-go. If you delay and instead try to build up to your main point, then I tend to become impatient and annoyed. Do not leave a single detail out - I cannot make an informed decision without all of the information. If I don't get all of the details, I'll ask for more. Come prepared with everything I need.
-- I have a laser focus on what I'm working on at the moment. If you overload me with information when I’m not prepared, I will push back on you, or put your task to the back of the line until I feel comfortable enough to process it. 
-- In person, say my name and then give me a few seconds to respond, so I can shift my attention from my current focus. Online, wait for me to reply back and engage you, before presenting me with your information.
-- If you are struggling to communicate with me online, pick up the phone and give me a call. I struggle with text based communication, because I miss the social cues that help me understand what you’re trying to get across to me.
-- Try and achieve your goal in a single conversation. Discussions or problems being presented to me in bits and pieces across multiple conversations is difficult for me to manage, and it can both frustrate me, and complicate my helping you resolve the situation.
+What I Value:
 
-How to help me
-- I catch details in the moment, however I struggle to remember those details as I move forward. If you’re giving me a task, I’m writing all of this down so I can remember later. If I’m giving you a task, you need to write down these details as well, because I will forget them and not follow up later. I appreciate help making sure the details are covered. 
-- Nudge me if I’m late for a meeting. I’m either 10 minutes early (as a way to compensate), or I’m 10 minutes late. I struggle to switch tracks in my mind when I’m working on something.
-- Tell me what I need to know, not what you think I want to hear. The inconvenient truth is better than a softer omission or white lie.
-- I am rarely, if ever, rude or offensive on purpose. If I have said or done something that you reacted to negatively, please tell me, because I am almost certainly not aware of the impact. I can't change my behaviour if I don't know how you feel.
-- Sometimes I need someone to call me out on how my behaviour is being perceived. I am very strong in my convictions, so I frequently come across as dismissive or derisive of other people’s thoughts or opinions. This is not the case.
-- Hanlon’s Razor: Never attribute to malice that which can be adequately explained by stupidity (or in my case, ignorance).
-- Be honest with me. It’s almost impossible for you to hurt my feelings, so don’t be afraid to speak your mind, as long as you do so politely.
+- Honesty, initiative, integrity, and forthrightness are essential to me. I encourage you to make good decisions, be trustworthy, think creatively, and speak up—even if it means admitting a mistake or failure.
+- Efficiency and effective communication are highly valued. Before starting something from scratch, let's explore if it has been attempted before or if there's a simpler way to achieve our goals. Let's work smarter, not harder.
+- Results matter. If you make a commitment, I trust you to follow through. If you encounter challenges or doubts during a project, please let me know in advance so that we can adapt and find solutions together.
 
-What people misunderstand about me
-- I am extremely direct in my communication. Sometimes people take my short, sharp communication to mean that I am angry or upset. I am simply trying to communicate in the most efficient way possible.
-- I am an introvert, posing as a professional extrovert. I don’t like speaking publicly, but I force myself to, if necessary. Too much social contact can drain me significantly, and sometimes I need to be alone and recharge. Don’t confuse my tendency to work alone in my office with being disengaged.  My door is not always open, but you are always welcome to knock.
-- I don’t need something to be my way; I need something to be the best way. I speak with a lot of conviction, which can intimidate people, but I’m not set in my thinking. I'm open-minded and always delighted to be shown a better way.
-- I am not completely heartless. I just have a distinct barrier to displaying my empathy and care for people. It’s not that I don’t care, it’s just not me who’s going to give you a big hug by default or be a physical shoulder to cry on. Displays of emotion make me uncomfortable.
+How Best to Communicate with Me:
 
-What to do when I’m angry
-- Please try to be patient with me, and try multiple different ways of exchanging ideas. If you’ve exhausted all avenues, suggest that we shelve the discussion for the time being, and revisit later, as this can allow me time to ponder the information you’ve provided me. Many times when anger comes on, it’s from exasperation. 
-- Give me the hard truths. Though I can be very reactive, it’s important for me to understand that my actions have real consequences and could take me to places I don’t want to see. The truth of my behaviour can help me socially as well. It might show me how I look to my peers, or how I might hurt others’ feelings by my negative actions.
-- While no one likes negativity or anger, I invite you to take ownership of, and solve the root cause of the problem if it’s within your ability/responsibility.
+- Be succinct and get to the main point upfront. I appreciate having all the necessary information right away to make informed decisions. If I need additional details, I'll ask for them.
+- My ADHD means that it is difficult for me to context-switch quickly. When approaching me in person, please say my name and give me a few seconds to shift my attention. Online, wait for my response before presenting your information.
+- If online communication becomes challenging, consider reaching out via phone call. I find text-based communication harder to interpret without social cues.
+- Let's aim to achieve our goals in a single conversation whenever possible. Fragmented discussions across multiple conversations can be difficult for me to manage and resolve effectively.
 
-Some idiosyncrasies you need to know about me
-- I wear the same outfit day in and day out. I have 15 pairs of exactly the same shirt, shorts, pants etc. etc. etc. Part of it is minimalism, but part of it is removing the mental load from my brain. It's one less decision to make.
-- I have sensory issues. Too much noise, too loud, for too long, and I start to shut down. The same goes for bright lights, and warm temperatures.
-- I don't like being touched, especially when I'm not expecting it, and especially not on my face.
-- You will frequently find me wearing hat and a backpack. Both of these items are a source of comfort, and I get anxious if I don't have one or the other.
-- I don't like eye contact, ever, but I will make a conscious effort to make eye contact with you anyway.
-- I will frequently cover my mouth with my hands, jiggle my leg, or twiddle my fingers. These are known as 'stims' or 'stimming'. It helps me cope with stress.
+How You Can Help Me:
 
-Main points to remember
-- I try to do the best, and be the best at everything I attempt. This means that if you’ve had a less than positive experience with me, it was most certainly unintentional, and something I want to improve upon. You just need to let me know.
-- I’m a person, a direct report, a teammate, a boss, and a messy work-in-progress. I’m committed to always getting better at my job, and to become a wiser, kinder and more impactful person.
+- Since I catch details in the moment but struggle to remember them later, please ensure that we both have written records of tasks and important information. Let's help each other stay on top of the details.
+- If I happen to be late for a meeting, feel free to nudge me. I often get engrossed in my work and lose track of time. As a result, I'm frequently ten minutes early, or ten minutes late to a meeting.
+- It's crucial that you share the information I need to know, rather than what you think I want to hear. I value the truth, even if it's inconvenient or challenging.
+- If I unknowingly say or do something that impacts you negatively, please let me know. I genuinely care about how my actions are perceived and want to improve.
+- Occasionally, I may come across as dismissive due to my strong convictions. Please call me out if my behavior seems disrespectful, as it's not my intention.
+
+Dealing with Anger:
+
+- If I seem frustrated or angry, please be patient and consider alternative ways to communicate ideas or concerns. Both my Autism and ADHD mean that my irritability threshold is much lower than the average person - it's not you, it's me. Please try and approach me with empathy, but remain direct and honest.
+- Provide specific feedback about the impact of my actions. Help me understand how my behaviour affects others and offer suggestions for improvement.
+- Encourage me to take ownership of any anger-inducing situations and work together to address the root causes, finding constructive solutions.
+
+What People Misunderstand About Me:
+
+- My communication style may seem direct, but it doesn't reflect anger or frustration. I aim for efficiency and clarity.
+- While I may appear extroverted in a professional setting, I'm actually an introvert. I value alone time to recharge, but I'm always open to collaboration.
+- I may struggle with multitasking or handling interruptions. If you need immediate assistance, please make that clear.
+
+Understanding and respecting my communication preferences, work style, and individual needs will create an environment where I can excel and contribute effectively to our team. Let's foster open and honest communication, set clear expectations, and focus on efficiency and results. Together, we can create a productive and inclusive work environment for everyone.
