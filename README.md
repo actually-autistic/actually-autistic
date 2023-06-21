@@ -3,6 +3,7 @@
 My Idiosyncrasies:
 
 - Executive dysfunction is a behavioral symptom that disrupts a person's ability to manage their own thoughts, emotions and actions. Emotional regulation is extremely difficult for me. If am being too loud, or too 'extra', please ask me to tone it down, because I may not be aware of my impact.
+- Adults with ADHD exhibit high justice sensitivity. This means I may generally perceive injustice more frequently and intensely, and show stronger emotional and behavioural responses to injustice.
 - I have a preference for wearing the same outfit every day. It's a deliberate choice to reduce decision fatigue and save mental energy for more important matters.
 - I have sensory issues, such as sensitivity to noise, bright lights, restrictive clothing, or warm temperatures. Understanding and accommodating these sensory issues is appreciated.
 - Unexpected touch, especially on my face, can be uncomfortable for me. I am also adverse to hugging, as physical restriction makes me uncomfortable. Please respect my personal boundaries.
